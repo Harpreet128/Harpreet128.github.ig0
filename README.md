@@ -1,1 +1,2 @@
 # Harpreet128.github.ig0
+Today first lecture was UHV.In this lecture mam explained Chapter 3 and chapter 4 .She tell us about seven human values-Trust, Respect, affection,care, guide,reverse,love.Mam tell us about 5 Human order - education sanskar, Health,self regulation,production work, justice preservation, exchange storage.our second lecture was peer interaction about college.He tell us about how we can make bus pass,how we can make library id,how we can get information about scholarship.
